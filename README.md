@@ -1,1 +1,1 @@
-# Bakal-sk-pr-ce---termokamera
+# BAKALARSKA PRACE TERMOKAMERA
